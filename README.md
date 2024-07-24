@@ -33,4 +33,11 @@ On this day we had our English test.
 1st class:
 Peer interaction of CANVA conducted by our seniors in which they taught the use of canva and how to made posters on canva.They told us the task which was to make a flyer,And I accomplished that task.
 ![Guru Nanak Dev Engineering College Ludhiana_20240719_083838_0000](https://github.com/user-attachments/assets/e572616d-c72d-40a6-8422-9adf8cafd636)
-
+2nd class:
+Mathematics (Integral calclulations)
+Auditorium session about NCC and NSS
+## Date-19july,2024...Day-Friday
+Auditorium session about communication skills and body language during placements.
+Dr.Jaswinder Singh(Incharge of IAPT)
+ Took a very good and interesting session of Math and Science.In which we got to learn a lot of new things.
+ 
